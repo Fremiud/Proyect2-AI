@@ -3,3 +3,4 @@
 
 ![image](https://github.com/Fremiud/Proyect2-AI/assets/68261200/f38b062d-18bd-46bc-bbf9-f8b510d90217)
 
+![image](https://github.com/Fremiud/Proyect2-AI/assets/68261200/8e272f18-2457-42cd-a49f-c13230f9f12c)
